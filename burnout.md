@@ -8,9 +8,11 @@ Na ascensão da revolução industrial, não era diferente. Você sabe a origem 
 
 Só conquistamos esse descanso quando a elite burguesa da época percebeu que os trabalhadores estavam tendo <b>produtividade baixa</b> com 1 dia de descanso, mas não pelos motivo que você deve estar pensando. Eles não estavam preocupados que os camaradas estavam cansados, sem tempo para a familia ou lazer, não não. 
 
-A baixa produtividade se dava pois no dia de descanso, os trabalhadores bebiam e se divertiam, buscavam atividades de lazer, com o excesso no consumo do alcool, os males do vício começa a impactar a produtividade no resto da semana. Sim camarada, a história, no fim do dia, é que a elite só não nos vê como seres humanos, não somos dignos do descanso nem de sentarmos ao lado deles no avião. No fim, a <b>instituição igreja</b> também percebeu estar perdendo público da missa aos domingos e decidiu apoiar os movimentos de trabalhadores que lutavam por 2 dias de descanso, assim, os trabalhadores poderiam buscar lazer em um dia e ir para igreja no outro. 
+A baixa produtividade se dava pois no dia de descanso, os trabalhadores bebiam e se divertiam, buscavam atividades de lazer, com o excesso no consumo do alcool, os males do vício começa a impactar a produtividade no resto da semana. Sim camarada, a história, no fim do dia, é que a elite só não nos vê como seres humanos, não somos dignos do descanso nem de sentarmos ao lado deles no avião. 
 
-Mais uma vez a nossa fé sendo sequestrada pela elite, para nos controlar, nos treinar literalmente como cães adestrados, não só para que não ataquemos as suas estruturas, mas adestrados a ponto de alguns de nós, fielmente acreditarem que essas elites precisam ser defendidas e protegidas, pois devemos algo a elas.
+No fim, a <b>instituição igreja</b> também percebeu estar perdendo público da missa aos domingos e decidiu apoiar os movimentos de trabalhadores que lutavam por 2 dias de descanso, assim, os trabalhadores poderiam buscar lazer em um dia e ir para igreja no outro. 
+
+Mais uma vez, nossa fé é sequestrada pela elite para nos controlar, nos condicionando como cães adestrados. Não apenas nos ensinam a não questionar ou enfrentar suas estruturas, mas nos levam a acreditar que essas mesmas elites merecem ser defendidas e protegidas. Assim, muitos de nós, iludidos, passam a enxergá-las como indispensáveis, como se lhes devêssemos gratidão ou lealdade.
 
 Fomos levados ao extremo com pandemia e seguimos sendo testados diariamente ao sairmos para trabalhar enquanto a crise climática, criada e impulsionada pela elite burguesa do agro, destrói nossas casas e ameaça nossa segurança. Não vou entrar no mérito agora da própria segurança pública ainda.
 
