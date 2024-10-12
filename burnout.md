@@ -1,3 +1,5 @@
+# Titulo: Burnout: Apostas no cansaço
+
 ## Uma visão geral
 
 A relação entre o cansaço acumulado e o comportamento dos trabalhadores é um tema que requer nossa atenção, especialmente quando se considera o papel da fadiga mental nas decisões diárias. A exaustão, seja ela física ou emocional, pode levar os indivíduos a buscarem alternativas para escapar da pressão do trabalho.
