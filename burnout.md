@@ -16,8 +16,7 @@ Mais uma vez, nossa fé é sequestrada pela elite para nos controlar, nos condic
 
 Fomos levados ao extremo com pandemia e seguimos sendo testados diariamente ao sairmos para trabalhar enquanto a crise climática, criada e impulsionada pela elite burguesa do agro, destrói nossas casas e ameaça nossa segurança. Não vou entrar no mérito agora da própria segurança pública ainda.
 
-
-Há um movimento até recente entre os trabalhadores de Tecnologia da Informação (T.I) em prol do descanso, da redução das horas de trabalho, mas ainda com pouca tração no cenário brasileiro. Infelizmente a nossa classe tech ainda é muito desunida, a precarização acaba seduzindo alguns colegas de profissão a se sujeitarem a ambientes cada vez mais tóxicos, onde a ausência de direitos do trabalhador é visto como um <b>vitória coletiva</b>, seduzidos pelo discurso de um dia se tornarem o opressor.
+Recentemente, vem ganhando força um movimento entre trabalhadores de Tecnologia da Informação (T.I) em defesa do descanso e da redução da jornada de trabalho, embora ainda tenha pouca tração no Brasil. Infelizmente, nossa classe permanece muito fragmentada, e a precarização defendida pelo(s) governo(s), onde a falta de direitos trabalhistas é tratada como uma conquista coletiva. Muitos são levados pelo discurso de que, ao abrir mão desses direitos, um dia estarão no lugar do opressor.
 
 Todos nós conhecemos aquele gerente ("lider") que se acha mais que o dono da empresa e se orgulha da sua desumanidade. Na área tech a maioria acaba virando influencer (e vendendo curso caro) para cooptar mais pessoas para esse ciclo maldito de ignorância e perpetuar a venda e exploração de mão de obra barata para o exterior.
 
