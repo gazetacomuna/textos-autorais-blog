@@ -8,7 +8,9 @@ Na ascensão da revolução industrial, não era diferente. Você sabe a origem 
 
 Só conquistamos esse descanso quando a elite burguesa da época percebeu que os trabalhadores estavam tendo <b>produtividade baixa</b> com 1 dia de descanso, mas não pelos motivo que você deve estar pensando. Eles não estavam preocupados que os camaradas estavam cansados, sem tempo para a familia ou lazer, não não. 
 
-A baixa produtividade se dava pois no dia de descanso, os trabalhadores bebiam e se divertiam, buscavam atividades de lazer, com o excesso no consumo do alcool, os males do vício começa a impactar a produtividade no resto da semana. Sim camarada, a história, no fim do dia, é que a elite só não nos vê como seres humanos, não somos dignos do descanso nem de sentarmos ao lado deles no avião. 
+A baixa produtividade se dava pois no dia de descanso, os trabalhadores bebiam e se divertiam, buscavam atividades de lazer, com o "excesso" no consumo do alcool, os males do vício começa a impactar a produtividade no resto da semana. Sim camarada, a história, no fim do dia, é que a elite só não nos vê como seres humanos, não somos dignos do descanso nem de sentarmos ao lado deles no avião. 
+
+<i>"Enquanto liberais clássicos, descendentes de Jeremy Bentham e Stuart Mill, consideravam que o sofrimento, seja do trabalhador, seja do cidadão, era um problema que atrapalhava a produção e criava obstáculos para o desenvolvimento e para o cálculo da felicidade, como máximo de prazer com mínimo de desprazer, a forma de vida neoliberal descobriu que se pode extrair mais produção e mais gozo do próprio sofrimento."</i> (livro "Neoliberalismo como gestão do sofrimento psíquico" por Vladimir Safatle, Nelson da Silva Junior, Christian Dunker) 
 
 No fim, a <b>instituição igreja</b> também percebeu estar perdendo público da missa aos domingos e decidiu apoiar os movimentos de trabalhadores que lutavam por 2 dias de descanso, assim, os trabalhadores poderiam buscar lazer em um dia e ir para igreja no outro. 
 
@@ -18,6 +20,8 @@ Fomos levados ao extremo com pandemia e seguimos sendo testados diariamente ao s
 
 Recentemente, vem ganhando força um movimento entre trabalhadores de Tecnologia da Informação (T.I) em defesa do descanso e da redução da jornada de trabalho, embora ainda tenha pouca tração no Brasil. Infelizmente, nossa classe permanece muito fragmentada, e a precarização defendida pelo(s) governo(s), onde a falta de direitos trabalhistas é tratada como uma conquista coletiva. Muitos são levados pelo discurso de que, ao abrir mão desses direitos, um dia estarão no lugar do opressor.
 
+<i>"Quando o indivíduo é colocado como centro da dinâmica, na verdade pesa sobre ele com máximo vigor uma lei externa, a lei da valorização do capital. Ao internalizá-la, é o <b>próprio indivíduo que passa a exigir de si mesmo ser um empreendedor bem-sucedido</b>, buscando “otimizar” o potencial de todos os seus atributos capazes de ser “valorizados”, tais como imaginação, motivação, autonomia, responsabilidade."</i> (livro "Neoliberalismo como gestão do sofrimento psíquico" por Vladimir Safatle, Nelson da Silva Junior, Christian Dunker)
+
 Todos nós conhecemos aquele gerente ("lider") que se acha mais que o dono da empresa e se orgulha da sua desumanidade. Na área tech a maioria acaba virando influencer (e vendendo curso caro) para cooptar mais pessoas para esse ciclo maldito de ignorância e perpetuar a venda e exploração de mão de obra barata para o exterior.
 
 ## Somos alvos fáceis
@@ -26,9 +30,11 @@ Pesquisas indicam que quando os trabalhadores se sentem sobrecarregados e cansad
 
 Junte um trabalhador exausto, cansado, sem perspectivas de ascensão, sendo o mais afetado pela crise climática burguesa, e tendo suas fontes de lazer esgotadas ou destruídas, o que resta para ele se não buscar o prazer imediato? Se essa pessoa não encontrar uma fonte de dopamina, o fim será trágico. Historicamente o álcool acaba exercendo esse papel nas massas, mais recentemente maconha e entre as elites cocaína e crack (sim). 
 
+Entre os trabalhadores, os ansiolíticos e antidepressivos para que possamos aguentar cada vez mais cargas maiores de trabalho. Até mesmo nossos filhos, cada vez mais cedo, já precisam de antidepressivos e estimulantes para performarem mais e melhor. Seu filho(a) já está tomando as "drogas da inteligência" ou anfetaminas? 
+
 Mas um lobo em pele de tigrinho, tomou de assalto todos esses vícios, com um crescimento astronomico e rápido, as bets se infiltraram sem dificuldade na mídia burguesa que preza somente o lucro a qualquer custo e odeia a própria população. Hoje temos bets nas propagandas da Ana Maria até o futebol de quarta, até mesmo no manto sagrado de nossos times.
 
-Programadas para a sua derrota, a esperança de mudar de vida ou simplesmente como um meio de aliviar o estresse, as bets sequestraram os trabalhadores brasileiros. As casas de apostas utilizam estratégias de marketing que exploram essa combinação de exaustão, revolta de classes desorientada e vulnerabilidade social com a cumplícidade de influencers que "saíram de baixo" e agora são milionários das bets, sem mencionarem para voccê, é claro, que a maioria tem envolvimento com o tráfico e as bets são só lavagem de dinheiro.
+Programadas para a sua derrota, a esperança de mudar de vida ou simplesmente como um meio de aliviar o estresse, as bets sequestraram os trabalhadores brasileiros. As casas de apostas utilizam estratégias de marketing que exploram essa combinação de exaustão, revolta de classes desorientada e vulnerabilidade social com a cumplícidade de influencers que "saíram de baixo" e agora são milionários das bets, sem mencionarem para você, é claro, que a maioria tem envolvimento com o tráfico e as bets são só lavagem de dinheiro.
 
 Quem pode culpar o usuário por tentar escapar da rotina desgastante e conquistar um prêmio que mudará a sua vida?
 
@@ -48,7 +54,7 @@ Além disso, a promoção de um ambiente de trabalho positivo, que valorize a sa
 
 Por outro lado, a conscientização sobre os riscos das apostas no ambiente de trabalho é essencial. As empresas devem implementar treinamentos e workshops que discutam a natureza dos 'high risks' e seus impactos, permitindo que os trabalhadores desenvolvam uma percepção crítica sobre seu papel na sociedade. 
 
-Exemplos de empresas que têm adotado iniciativas promissoras nesse sentido incluem aquelas que promovem "dias de saúde", onde os colaboradores são incentivados a participar de atividades físicas e workshops sobre gestão de estresse e saúde mental, e claro, remuneração justa. 
+Exemplos de empresas que têm adotado iniciativas anfetaminaspromissoras nesse sentido incluem aquelas que promovem "dias de saúde", onde os colaboradores são incentivados a participar de atividades físicas e workshops sobre gestão de estresse e saúde mental, e claro, remuneração justa. 
 
 Assim, ao integrar essas práticas na cultura organizacional, as empresas não apenas ajudam a reduzir o cansaço e aumentar a resiliência dos trabalhadores, mas também efetivamente valorizam suas habilidades e contribuições, promovendo um ambiente onde todos podem prosperar.
 
@@ -58,6 +64,7 @@ Eu sei que o cenário ideal esta muito longe da realidade, principalmente para p
 Links relacionados: 
 
 
-Burnout - https://youtu.be/lrBGrwZ2Tbk?si=XaTufwR5f9fpNOEl
-Quem inventou o fds? https://super.abril.com.br/mundo-estranho/quem-inventou-o-fim-de-semana#google_vignette
-A mitologia do espírito de dono - https://www.youtube.com/watch?v=lAguXA_B3zw
+Burnout - https://youtu.be/lrBGrwZ2Tbk?si=XaTufwR5f9fpNOEl <br>
+Quem inventou o fds? https://super.abril.com.br/mundo-estranho/quem-inventou-o-fim-de-semana#google_vignette <br>
+A mitologia do espírito de dono - https://www.youtube.com/watch?v=lAguXA_B3zw <br> 
+Livro Neoliberalismo como gestão do sofrimento psíquico
