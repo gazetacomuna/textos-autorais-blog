@@ -8,7 +8,7 @@ A elite carioca é a estampa da Elite do Atraso: pobres de alma, carecem de huma
 
 Aqui você encontrará tudo isso, toda essa turminha do barulho, cujos mais sensatos estão hoje presos pela tentativa de golpe de 8 de janeiro.  
 
-Falando da elite, vamos falar agora dos trabalhadores, onde também está enraizada a opressão que sofrem e o passado escravocrata recente da elite carioca. Grande parte é massacrada pelo cansaço e pela violência, dos quais são os maiores alvos nos morros.  
+Deixando de lado um pouco a elite, vamos falar agora dos trabalhadores e o que essa elite perpetua aqui no Rio. Está tão enraizada a opressão que sofrem e o passado escravocrata recente dessa elite, que não resta escapatória para o trabalhador se não se submeter a eles. Grande parte é massacrada pelo cansaço e pela violência, dos quais são os maiores alvos nos morros.
 
 Esses trabalhadores estão 'adestrados' a respeitar qualquer pessoa que pareça superior economicamente ou que tenha aparência de gringo. Não digo isso para tripudiar dos trabalhadores, de forma alguma; faço aqui uma denúncia.  
 
